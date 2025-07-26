@@ -30,8 +30,8 @@ My main interests include threat detection, protecting critical systems, and lev
 
 ## 📫 Contact
 Feel free to reach out via LinkedIn or email:
-- [Insert your LinkedIn profile]
-- Email: [optional]
+- www.linkedin.com/in/kemal-savut-4457391ba
+- Email: kemalsavut@gmx.ch
 
 ---
 
